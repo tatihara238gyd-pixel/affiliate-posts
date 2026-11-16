@@ -5,6 +5,7 @@
 - 価格: ¥3,980（2026-11-16時点、変動あり）
 - アフィリエイトリンク: https://www.amazon.co.jp/dp/B0HL839XSZ/ref=cm_sw_r_as_gl_api_gl_i_0DW25PTDX0X348Y4MRSB?linkCode=ml1&tag=tomato2409-22&linkId=0435b9d5ea932f54092d61b3cb08f424
 - Canvaデザイン: https://canva.link/h0t7klut6bu5eey
+- Instagram投稿: https://www.instagram.com/p/DfzkNzGjw9M/（2026-11-16 投稿済み）
 - 媒体: Instagram（カルーセル3枚、実物の商品写真使用）
 
 ## キャプション
