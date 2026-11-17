@@ -21,8 +21,7 @@ VASAGLE シューズラック 5段
 
 玄関が狭い家こそ、縦に収納するとすっきりする。
 
-商品はこちら👇
-https://www.amazon.co.jp/dp/B0DJSTH7SX?coliid=I2LG0XZ2TSHVCV&colid=IZW4LZF65RUF&th=1&linkCode=sl2&tag=tomato2409-22&linkId=6d23760f35b40c592db48f5406b24cb9&ref_=as_li_ss_tl
+商品リンクはプロフィールの「全商品リンク集」にあります👇
 
 価格：¥6,209（Amazon確認時点）
 Amazon評価：★4.2（2,346件）

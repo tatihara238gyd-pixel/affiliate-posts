@@ -22,8 +22,7 @@ HBADA E3 Pro オフィスチェア
 
 組み立ては15〜20分ほど。座り心地にこだわりたい人の一台。
 
-商品はこちら👇
-https://www.amazon.co.jp/dp/B0GS5MW4NB?coliid=IYKUT7PMSXRJI&colid=IZW4LZF65RUF&th=1&linkCode=sl2&tag=tomato2409-22&linkId=9272d1b96e81fa302dcb46a8be45e95e&ref_=as_li_ss_tl
+商品リンクはプロフィールの「全商品リンク集」にあります👇
 
 価格：¥88,980（Amazon確認時点）
 Amazon評価：★4.3（1,217件）

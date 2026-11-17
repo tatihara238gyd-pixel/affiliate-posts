@@ -21,8 +21,7 @@ SUS304ステンレス製で、樹脂製よりヌメリにくい。
 
 水回りの嫌な臭いとヌメリが気になる人に。
 
-商品はこちら👇
-https://www.amazon.co.jp/dp/B0CCD2C5H7?coliid=IG50OQXQ04BUM&colid=IZW4LZF65RUF&psc=1&linkCode=sl2&tag=tomato2409-22&linkId=fd3372708b899d10b11317b0fcaa743d&ref_=as_li_ss_tl
+商品リンクはプロフィールの「全商品リンク集」にあります👇
 
 価格：¥2,148（Amazon確認時点）
 Amazon評価：★4.5（611件）

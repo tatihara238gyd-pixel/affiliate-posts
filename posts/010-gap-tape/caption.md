@@ -22,8 +22,7 @@
 
 引っ越し直後のきれいなうちに貼るのがおすすめ。
 
-商品はこちら👇
-https://www.amazon.co.jp/dp/B0DNCCTTPW?coliid=I1KJQOYUR3ETP2&colid=IZW4LZF65RUF&th=1&linkCode=sl2&tag=tomato2409-22&linkId=63bda718ccccd7be766243f24bb2c179&ref_=as_li_ss_tl
+商品リンクはプロフィールの「全商品リンク集」にあります👇
 
 価格：¥1,180（Amazon確認時点）
 Amazon評価：★3.9（679件）

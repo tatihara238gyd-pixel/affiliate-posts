@@ -22,8 +22,7 @@ AP LAB 珪藻土バスマット（ダークグレー）
 
 板状の珪藻土マットと違って、場所を取らないのがいい。
 
-商品はこちら👇
-https://www.amazon.co.jp/dp/B0FF9XZHCX?coliid=IL4Y4SC7YJD2T&colid=IZW4LZF65RUF&th=1&linkCode=sl2&tag=tomato2409-22&linkId=d0955b81c091ca076240c607bf727847&ref_=as_li_ss_tl
+商品リンクはプロフィールの「全商品リンク集」にあります👇
 
 価格：¥3,980（Amazon確認時点）
 Amazon評価：★4.3（232件）

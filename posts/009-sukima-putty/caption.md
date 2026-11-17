@@ -21,8 +21,7 @@
 
 1個あると家のあちこちで使える。
 
-商品はこちら👇
-https://www.amazon.co.jp/dp/B000W9KVOY?coliid=I2C2BT869XFDVM&colid=IZW4LZF65RUF&th=1&linkCode=sl2&tag=tomato2409-22&linkId=5e779508da00f9fafef01e79bcf274e9&ref_=as_li_ss_tl
+商品リンクはプロフィールの「全商品リンク集」にあります👇
 
 価格：¥578（Amazon確認時点）
 Amazon評価：★4.3（5,482件）

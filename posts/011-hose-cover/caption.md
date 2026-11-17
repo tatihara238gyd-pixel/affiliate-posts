@@ -21,8 +21,7 @@
 
 洗濯機まわりはホコリが溜まりやすいから、最初に対策しておくと楽。
 
-商品はこちら👇
-https://www.amazon.co.jp/dp/B0H369K13V?coliid=I4GLKIL4VWQO3&colid=IZW4LZF65RUF&psc=1&linkCode=sl2&tag=tomato2409-22&linkId=47e309603c545c3772e19b969544177d&ref_=as_li_ss_tl
+商品リンクはプロフィールの「全商品リンク集」にあります👇
 
 価格：¥1,350（Amazon確認時点）
 Amazon評価：★4.5（29件）
