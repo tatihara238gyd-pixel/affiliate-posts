@@ -1,0 +1,33 @@
+# 投稿⑧ セメダイン すきまパテ HC-146
+
+- 商品名：セメダイン 不乾性充てん材 すきまパテ 白 200g HC-146
+- ASIN：B000W9KVOY
+- 価格：¥578（参考価格¥768、Amazon確認時点 2026-11-17）
+- Amazon評価：★4.3（5,482件）
+- アフィリエイトリンク：https://www.amazon.co.jp/dp/B000W9KVOY?coliid=I2C2BT869XFDVM&colid=IZW4LZF65RUF&th=1&linkCode=sl2&tag=tomato2409-22&linkId=5e779508da00f9fafef01e79bcf274e9&ref_=as_li_ss_tl
+
+## キャプション本文
+
+```
+引っ越しで買ってよかったもの⑧
+セメダイン すきまパテ 白 200g（HC-146）
+
+引っ越し先のすき間埋めの定番。
+エアコン配管の壁穴や、流し台の排水管まわりのすき間に。
+
+✅ かたまらない不乾性パテ（粘土状で造形しやすい）
+✅ コンクリート・木・金属などによく付着
+✅ 上から塗装もできる
+
+1個あると家のあちこちで使える。
+
+商品はこちら👇
+https://www.amazon.co.jp/dp/B000W9KVOY?coliid=I2C2BT869XFDVM&colid=IZW4LZF65RUF&th=1&linkCode=sl2&tag=tomato2409-22&linkId=5e779508da00f9fafef01e79bcf274e9&ref_=as_li_ss_tl
+
+価格：¥578（Amazon確認時点）
+Amazon評価：★4.3（5,482件）
+
+※Amazonのアソシエイトとして、toma.to2409は適格販売により収入を得ています。
+
+#引っ越し #新生活 #DIY #すきまパテ #セメダイン #補修グッズ #買ってよかったもの
+```

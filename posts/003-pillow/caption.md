@@ -22,7 +22,8 @@
 価格は15,800円でした（価格は変動します）。
 Amazonの評価は4.1（レビュー3,794件）です。
 
-商品はプロフィールのリンクから見れます👇
+商品はこちら👇
+https://www.amazon.co.jp/dp/B08KFTF6GX?coliid=I7X4ZWHOP6OGX&colid=IZW4LZF65RUF&th=1&linkCode=sl2&tag=tomato2409-22&linkId=3e4125277a608f7673ea2af850f06843&ref_=as_li_ss_tl
 
 実際に買ってよかったものだけ紹介しています。
 Amazonのアソシエイトとして、toma.to2409は適格販売により収入を得ています。
