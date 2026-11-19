@@ -22,8 +22,7 @@
 4個入り、価格は3,980円でした（価格は変動します）。
 Amazonでは過去1か月で50点以上購入されてるみたいです。
 
-商品はこちら👇
-https://www.amazon.co.jp/dp/B0HL839XSZ/ref=cm_sw_r_as_gl_api_gl_i_0DW25PTDX0X348Y4MRSB?linkCode=ml1&tag=tomato2409-22&linkId=0435b9d5ea932f54092d61b3cb08f424
+商品リンクはプロフィールの「全商品リンク集」にあります👇
 
 実際に買ってよかったものだけ紹介しています。
 Amazonのアソシエイトとして、toma.to2409は適格販売により収入を得ています。
